@@ -11,7 +11,7 @@
 
 - 📄 Know about my experiences [https://rebrand.ly/DAresume](https://rebrand.ly/DAresume)
 
-- ⚡ Fun fact **I think I am funny but nobody laughs at my jokes.**
+- ⚡ Fun fact - **I think I am funny but nobody laughs at my jokes.**
 
 
 
